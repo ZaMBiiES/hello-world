@@ -2,5 +2,5 @@
 Just another repository
 
 I greatly miss my father 
-which he it will be a year ago since he's passed on
+which it will be a year ago since he's passed on
 December 18, 2018
